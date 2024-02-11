@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shariffshaik06@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1SpxbiPYB5X64HK8GYbrpPR-2nJV-OPiC/view?usp=sharing](https://drive.google.com/file/d/1SpxbiPYB5X64HK8GYbrpPR-2nJV-OPiC/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/1SpxbiPYB5X64HK8GYbrpPR-2nJV-OPiC/view?usp=sharing](https://drive.google.com/file/d/1SSA61_LLJ1mbjqt0dmEn2ftgXOp_N_6q/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
